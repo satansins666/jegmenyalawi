@@ -1,0 +1,2 @@
+# jegmenyalawi
+menyala bosku
